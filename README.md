@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vevotrytocode
 - 👀 I’m interested in don't be lazy
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on my brain
+- 💞️ I’m looking to collaborate with my brain
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i like broccoli
